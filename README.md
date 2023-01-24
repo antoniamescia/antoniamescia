@@ -1,4 +1,4 @@
-¡Hi! I'm Antonia. :smiley:
+Hi! I'm Antonia. :smiley:
 
 I'm a Computer Science student at Universidad Católica del Uruguay. :nerd_face: 
 
